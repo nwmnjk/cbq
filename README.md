@@ -1,1 +1,1 @@
-![required](content/cbq HQ OFFICE POSTER.png)
+![required](content/officeposter.png)
